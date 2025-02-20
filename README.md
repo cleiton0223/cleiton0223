@@ -1,7 +1,5 @@
 
 
-**cleiton0223/cleiton0223** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 - ⚡ Tenho 23 anos de idade
 - 🏠 Moro em indaial-SC
