@@ -1,6 +1,4 @@
 
-
-Here are some ideas to get you started:
 - ⚡ Tenho 23 anos de idade
 - 🏠 Moro em indaial-SC
 - ‍💼 Trabalho na Metálurgica FEY
