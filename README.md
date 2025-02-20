@@ -1,4 +1,3 @@
-![image](https://github.com/user-attachments/assets/0fcabb19-5f88-4864-925c-fbde98f03cb0)## Hi there 👋
 
 
 **cleiton0223/cleiton0223** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
