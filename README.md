@@ -4,7 +4,7 @@
 - ‍💼 Trabalho na Metálurgica FEY
 - 💬 Sou uma pessoa dedicada e trabalhadora
 - 🏫 Ensino Médico completo
-- 🎓 Menor aprendiz instituição Senai- Torneiro Mecânico
+- 🎓 Menor aprendiz instituição Senai Indaial SC - Torneiro Mecânico
 - 🎓 Estou cursando técnico em analise de desevolvimento de sistemas 
 - 🎓 Cursos de Nr11 e Nr12
 
