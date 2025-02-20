@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 🏫 Ensino Médico completo
 - 🎓 Menor aprendiz instituição Senai- Torneiro Mecânico
 - 🎓 Estou cursando técnico em analise de desevolvimento de sistemas 
-- 🎓 cursos de Nr11 e Nr12
+- 🎓 Cursos de Nr11 e Nr12
 
